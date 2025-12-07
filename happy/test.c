@@ -1,1 +1,2 @@
-we are charlie kirk 
+DEEPIKA
+we love you
